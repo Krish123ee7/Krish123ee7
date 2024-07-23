@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Krish Bhatia
+- 👀 I’m interested in alot of stuff like AI, making games(writing the code for alredy made games(2D)), and learning new things
+- - 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on any python project if you are intrested :)
+- 📫 How to reach me DM me on instagram @Krish123ee7
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I love cat-land-central
